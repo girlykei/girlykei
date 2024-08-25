@@ -14,10 +14,8 @@
   <img align="center" alt="decor" src="https://i.ibb.co/5xxsnkv/IMG-8195.gif"> 
   <b>— my silly main interests ! —</b>
   <img align="center" alt="decor" src="https://i.ibb.co/5xxsnkv/IMG-8195.gif">
-  <br>j-fashion, elsword, genshin,
-  <br> fragaria memories, horror,
-  <br> animanga, mobage in general
-  <br> + unlisted, just ask !
+  <br>j-fashion, elsword, genshin, fragaria memories, horror,
+  <br> animanga, mobage in general + unlisted, just ask !
 </p>
 
 <p align="center">
@@ -25,12 +23,9 @@
   <b>— ponytown specific ! —</b>
   <img align="center" alt="decor" src="https://i.ibb.co/5xxsnkv/IMG-8195.gif">
   <br> !!! do not copy my ponies !!!
-  <br> usually non-verbal, more likely
-  <br> to respond in whispers or if i'm
-  <br> with friends! only exception to
-  <br> c + h is if i have "dni" in my 
-  <br> name. otherwise, feel free to
-  <br> interact !
+  <br> usually non-verbal, more likely to respond in whispers or if i'm
+  <br> with friends! only exception to c + h is if i have "dni" in my 
+  <br> name. otherwise, feel free to interact !
 </p>
 
 <p align="center">
