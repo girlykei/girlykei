@@ -1,4 +1,4 @@
-## work in progress ... !
+## about me ... !
 
 <p align="center">
   <kbd>
@@ -14,19 +14,31 @@
   <img align="center" alt="decor" src="https://i.ibb.co/5xxsnkv/IMG-8195.gif"> 
   <b>— my silly main interests ! —</b>
   <img align="center" alt="decor" src="https://i.ibb.co/5xxsnkv/IMG-8195.gif">
-  <br>j-fashion, elsword, genshin
-  <br> fragaria memories, horror
+  <br>j-fashion, elsword, genshin,
+  <br> fragaria memories, horror,
   <br> animanga, mobage in general
   <br> + unlisted, just ask !
 </p>
 
 <p align="center">
   <img align="center" alt="decor" src="https://i.ibb.co/5xxsnkv/IMG-8195.gif"> 
-  <b>— other notes ! —</b>
+  <b>— ponytown specific ! —</b>
   <img align="center" alt="decor" src="https://i.ibb.co/5xxsnkv/IMG-8195.gif">
-  <br> to be added ... !
+  <br> !!! do not copy my ponies !!!
+  <br> usually non-verbal, more likely
+  <br> to respond in whispers or if i'm
+  <br> with friends! only exception to
+  <br> c + h is if i have "dni" in my 
+  <br> name. otherwise, feel free to
+  <br> interact !
 </p>
 
 <p align="center">
   <img align="center" width="500" alt="cloud divider" src="https://i.ibb.co/svGhCyW/IMG-6112.gif">
+</p>
+
+<p align="center">
+  <img align="center" alt="decor" src="https://i.ibb.co/xC5hfZ1/IMG-7235.gif"> 
+  <b> <a href="https://girlykei.atabook.org/">atabook</a> — <a href="https://rentry.co/yori-san-tiny">decor sources</a> </b>
+  <img align="center" alt="decor" src="https://i.ibb.co/b1JT2HG/IMG-7236.gif">
 </p>
