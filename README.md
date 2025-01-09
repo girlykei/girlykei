@@ -23,7 +23,7 @@
   <b>— ponytown specific ! —</b>
   <img align="center" alt="decor" src="https://i.ibb.co/5xxsnkv/IMG-8195.gif">
   <br> !!! do not copy my ponies !!!
-  <br> usually non-verbal, more likely to respond in whispers or if i'm
+  <br> usually (semi-)mute, more likely to respond in whispers or if i'm
   <br> with friends! only exception to c + h is if i have "dni" in my 
   <br> name. otherwise, feel free to interact !
 </p>
